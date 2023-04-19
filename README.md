@@ -6,4 +6,4 @@
 2. Hackenschmidt (Kniebeuge)
 3. Preacher curls (Bizeps)
 4. Trizepsdrücken am Kabelzug
-5. SChulterdrücken KH
+5. Deadlifts
