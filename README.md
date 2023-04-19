@@ -1,9 +1,9 @@
 # my_favorites
 
-## Meine top 5 Animes
+## Top 5 Übungen
 
-1. One Piece
-2. Bleach
-3. Demon Slayer
-4. Attack on Titan
-5. Irgendwas
+1. KH incline bench (Brust)
+2. Hackenschmidt (Kniebeuge)
+3. Preacher curls (Bizeps)
+4. Trizepsdrücken am Kabelzug
+5. SChulterdrücken KH
